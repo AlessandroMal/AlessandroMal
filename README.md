@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @AlessandroMal, physicist and programming lover. Always exited to work on new projects and learn something new
+- 👀 I’m interested in physics problems, condensed matter and statistical physics, data science and python. Crypto world and chess lover
+- 📫 How to reach me: Skype: live:ale.gooogle
